@@ -1,6 +1,9 @@
 ꒱ - Hi ! This is Veil . 
+
 ꒱ On here for pt ^_^ 
-!! Intro V
+
+!! Intro 
+
 NAME :    VEIL ! - for newcomers. 
 
 PRNS : Ve/Vir, OR He/they . No preference! 
@@ -9,7 +12,7 @@ AGE  : Not sharing, but please know I'm a minor!!!
 
 SEXUALITY/GENDER : Transmasc nonbinary . Omnisexual , I'm taken!! I LOVE MY GF 
 
-INTERESTS (that i can remember) : NANBAKA, TWST, HSR, DEATH NOTE, CSM, KIZNAIVER, TNC, VAMPIRES, OCS (ESPECIALLY OCS I LOVE OCS!!! ^_^ I TALK ABOUT THEM ALL THE TIME) , MUSIC I LOVE MUSIC!!( my music taste is really mixed so i dont have a specific genre that i can name?? soo), FANTASY, IHNMAIMS, ART, GENSHIN (though i rarely play it or associate myself with it) , ANIMALS , FASHION (goth fashion specifically 🤑), thats all i can rmbr sorree 
+INTERESTS (that i can remember) : NANBAKA, TWST, HSR, DEATH NOTE, CSM, KIZNAIVER, TNC, VAMPIRES, OCS (ESPECIALLY OCS I LOVE OCS!!! ^_^ I TALK ABOUT THEM ALL THE TIME) , MUSIC I LOVE MUSIC!!( my music taste is really mixed so i dont have a specific genre that i can name?? soo), FANTASY, IHNMAIMS, ART, GENSHIN (though i rarely play it or associate myself with it) , ANIMALS , FASHION (goth fashion specifically 🤑), WUWA,  thats all i can rmbr sorree 
 
 OTHER : Im black 🗣️🔥✊🏾! I get irritated/upset easily and I may come off as rude. If you see me in pt please iwc (interact with caution) . I'm also kind of just a rudely honest person in general, if I upset you just block me . If I do not like you I will make it clear that I do not like you; I'll probably hide you and move on with my day. If I'm not with my friends in pt I like to go around and join parties, I rarely host... 
 
