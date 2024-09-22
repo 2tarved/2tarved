@@ -1,24 +1,40 @@
-꒱ - Hi ! This is Veil . 
+𝙍𝘼𝙄𝙕𝘼 . ! 𝘼 𝙋𝙏 𝙃𝙊𝙎𝙏. ^_^ | 𝙃𝙀 / 𝙏𝙃𝙀𝙔
 
-꒱ On here for pt ^_^ 
+✦ ~  𝘾𝙊𝙃𝙊𝙎𝙏𝙎:  𝙃𝙊𝙇𝙇𝙔 ( 𝙢𝙮 𝙜𝙛!! <3 ) 𝙈𝙄𝙇𝙀𝙎 ( 𝙢𝙮 𝙗𝙧𝙤𝙩𝙝𝙚𝙧 𝙞𝙣 𝙡𝙖𝙬!!! )
 
-!! Intro 
 
-NAME :    VEIL ! - for newcomers. 
+  . ~  𝙏𝙃𝙀𝙈𝙀𝘿 𝙋𝘼𝙍𝙏𝙄𝙀𝙎:  
 
-PRNS : Ve/Vir, OR He/they . No preference! 
 
-AGE  : Not sharing, but please know I'm a minor!!!
+🪄. 🎩  𝒮𝒜𝒩†𝐸𝑅𝒩𝒪'𝒮 𝑀𝒜𝒢𝐼𝒞 𝒮𝐻𝒪𝒲 !  ( OC MAKER  ✨ ) , MASCOT : 𝓢𝓐𝓝𝓣𝓔𝓡𝓝𝓞 𝓝𝓞𝓥𝓐𝓡𝓔𝓢𝓔  ( MOST RECENT ! )
 
-SEXUALITY/GENDER : Transmasc nonbinary . Omnisexual , I'm taken!! I LOVE MY GF 
+🎪. 🎉  𝘛𝘏𝘌 𝘊𝘖𝘓𝘖𝘙𝘍𝘐𝘓𝘓 𝘊𝘐𝘙𝘊𝘜𝘚 ! ( ROULETTE 🤡 ) , MASCOT : ᴄʏɴ
 
-INTERESTS (that i can remember) : NANBAKA, TWST, HSR, DEATH NOTE, CSM, KIZNAIVER, TNC, VAMPIRES, OCS (ESPECIALLY OCS I LOVE OCS!!! ^_^ I TALK ABOUT THEM ALL THE TIME) , MUSIC I LOVE MUSIC!!( my music taste is really mixed so i dont have a specific genre that i can name?? soo), FANTASY, IHNMAIMS, ART, GENSHIN (though i rarely play it or associate myself with it) , ANIMALS , FASHION (goth fashion specifically 🤑), WUWA,  thats all i can rmbr sorree 
+🥀. 😈  †𝘏𝘌 𝘋𝘌𝘝𝘐𝘓𝘐𝘚𝘏 𝘊𝘈𝘙𝘕𝘐𝘝𝘈𝘓 ! ( OC MAKER 🪓 ) , MASCOT : 𝐄́𝐒𝐇𝐀
 
-OTHER : Im black 🗣️🔥✊🏾! I get irritated/upset easily and I may come off as rude. If you see me in pt please iwc (interact with caution) . I'm also kind of just a rudely honest person in general, if I upset you just block me . If I do not like you I will make it clear that I do not like you; I'll probably hide you and move on with my day. If I'm not with my friends in pt I like to go around and join parties, I rarely host ,,, 
+🪷. 🪸 𝒫𝒪𝒩𝒟 𝐼𝒮𝐿𝒜𝒩𝒟 ! ( ROULETTE 🌿 ) , MASCOT : 𝐅𝐈𝐊𝐈𝐑𝐀
 
-TRIGGERS/THINGS THAT I JUST DO NOT LIKE. : rape/SA/ "im gonna touch you" jokes. (I'm a rape survivor and if you make these jokes you are fucking disgusting. have common sense ppl), TOO MANY sex jokes (I wont complain about these jokes at first, but too many just makes me uncomfortable), Sexualizing me., Random venting (ik i sound like an asshole but DO NOT vent to me out of nowhere?? this happened too many times. i also just do not like when ppl vent to me in general.. im not in the mental state to be a free therapist) Literally just being a weirdo in general. if you know you're a weirdo do not interact w me.  
 
-Bye! 
-![alt text](https://cdn.discordapp.com/attachments/1076994660423172197/1244847228825370685/IMG_7631.jpg?ex=665699d3&is=66554853&hm=21a674a66cf2ffad596855d5376c1234f0b7f515eba74e86ac23b11c23d75c44&)
 
-https://open.spotify.com/playlist/5PvoXUQF0W3X63KboLkzfl?si=DPhGHVXbStqG-ZeyenMg_g&pi=u-1PFiMRqnRlOQ
+✦ ~ 𝘽𝙊𝙐𝙉𝘿𝘼𝙍𝙄𝙀𝙎 𝘼𝙉𝘿 𝘿𝙄𝙎𝙇𝙄𝙆𝙀𝙎 !
+
+
+ • in-party , try your best to not annoy the hosts . ^_^ we do get annoyed easily and we will NOT hesitate to kick . 
+
+
+ • PLEASE do not interact with me or the other hosts outside of parties. we are usually on dniui / dniuf / dni . ^_^ 
+
+ • most of our parties are pretty carefree , allowing guests to say slurs and shit like that . . but dont take advantage of that and do weird / annoying stuff . 
+ 
+* DO NOT COPY ME OR THE CO-HOSTS SKINS!!! it is only right to copy skins who you have PERMISSION to copy , ( youtube videos , pinterest , etc . ) and you dont have that permission from us.
+
+
+* be mature around me and dont try to start arguments. 
+
+
+
+✦ ~  𝐀𝐁𝐎𝐔𝐓 𝐌𝐄 . 
+
+* transmasc , black & hispanic , minor , audhd . ^_^ 
+* not in many fandoms , ,
+* artist !! 
