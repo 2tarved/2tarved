@@ -22,7 +22,7 @@
  • in-party , try your best to not annoy the hosts . ^_^ we do get annoyed easily and we will NOT hesitate to kick . 
 
 
- • PLEASE do not interact with me or the other hosts outside of parties. we are usually on dniui / dniuf / dni . ^_^ 
+ • PLEASE do not interact with me or the other hosts outside of parties. we are usually on dniui / dniuf / dni . ^_^ You MAY w2i w/ me but if i do not respond dont try to int any longer!!! 
 
  • most of our parties are pretty carefree , allowing guests to say slurs and shit like that . . but dont take advantage of that and do weird / annoying stuff . 
  
